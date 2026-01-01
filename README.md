@@ -1,0 +1,2 @@
+# kalaallit-nunaat-cybersecurity-suliffeqarfii
+Kalaallit Nunaanni internettikkut anernikkut suliffeqarfii piqqusivimmik inissisimasut
